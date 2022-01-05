@@ -9,9 +9,3 @@
 >**ENDER1355**
 - professional retard from turkey, cant code, spams the L
 
->**natasha**
-- haram skidder cat is angry at you 😡😡😡. #BLM #ACAB (Also a kotlin lover smh)
-
->**chocopie**
-- braindead retard
-
