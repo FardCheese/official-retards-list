@@ -6,8 +6,8 @@
 >**cedo**
 - Not really retarded but he's a big skid but doesn't admit it. Also 81^2 = 9 very big brain. "Sprinting is 3.06 bps"
 
->**SpyFromTF2**
-- a nn kid from ccbluex forum. biggest retard ever. legit has no brain
+>**ENDER1355**
+- professional retard from turkey, cant code, spams the L
 
 >**natasha**
 - haram skidder cat is angry at you 😡😡😡. #BLM #ACAB (Also a kotlin lover smh)
